@@ -1,0 +1,1 @@
+# Avatar-do-propriet-rio-2024-IA22-TRABALHO-FINAL
